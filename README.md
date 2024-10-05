@@ -6,4 +6,3 @@
 
 ![1728125395170](https://s2.loli.net/2024/10/05/KE6CSdmvVAtbIWo.png)
 
-![1728124999820](https://s2.loli.net/2024/10/05/Qnpqesgz8Ziydut.png)
